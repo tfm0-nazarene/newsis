@@ -1,3 +1,2 @@
 # newsis
-Ummm... idk
-*hi*
+Ummm... idk what it is lol (^-^)
